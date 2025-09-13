@@ -1,1 +1,1 @@
-# NikZagor.github.io
+# Графики
